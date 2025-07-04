@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning python,html,css
 - 💞️ I’m looking to collaborate on coding internships
-- 📫 How to reach me by mailid,6281864530
+- 📫 How to reach me by manikumarnarala48@gmail.com,6281864530
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
